@@ -1,1 +1,1 @@
-https://codepen.io/Sussy-Baka-the-typescripter/pen/vYPGzPX
+https://codepen.io/Sussy-Baka-the-typescripter/pen/vYPGzPX -- 404 page
